@@ -22,7 +22,8 @@ With SnapTube, you can download high-quality videos and music from **YouTube**, 
 
 **SnapTube VIP Premium APK** is the perfect video downloader for Android in 2025! With lightning-fast download speeds, support for multiple video platforms, and a clean, ad-free interface, SnapTube offers the ultimate video downloading experience.
 
-![Image](https://github.com/user-attachments/assets/76557e5a-7cbd-461e-925e-39bef0cd8c18)
+![Image](https://github.com/user-attachments/assets/9921bec7-1178-4276-8928-e9d0f2ca4ce2)
+
 Whether you're offline or just looking to save your favorite videos, SnapTube has you covered. 📥
 ## 🔥 Features of SnapTube VIP Premium APK
 
